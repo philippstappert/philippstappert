@@ -8,4 +8,4 @@
 
 📫 You can reach me via Mail (mail@phsta.de) or via Matrix: [@philippstappert:phsta.de](https://matrix.to/#/@philippstappert:phsta.de)
 
-Find out more about me on my website: https://phsta.de
+Find out more about me on my website: https://www.phsta.de
